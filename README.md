@@ -1,3 +1,3 @@
 # ART
-<u>Daily Renders</u>
+Daily Renders
 
